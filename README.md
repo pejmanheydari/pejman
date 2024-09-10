@@ -87,6 +87,8 @@ https://resid24.com/sheba/convert/khavarmianeh/
 https://resid24.com/sheba/convert/markazi/
 https://resid24.com/sheba/convert/toseah_saderat/
 https://resid24.com/sheba/convert/post/
+https://novinirani.ir/blog/telegram-ghost-mode-and-secret-chat/
+https://novinirani.ir/
 https://resid24.com/sheba/convert/sarmayeh/
 https://resid24.com/sheba/convert/toseah_taavon/
 https://resid24.com/sheba/convert/iran_venezuela/
